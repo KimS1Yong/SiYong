@@ -1,1 +1,1 @@
-**Kim Si Yong** :smile:
+**Kim Si Yong** (Seoul Tech University Since 2019)
